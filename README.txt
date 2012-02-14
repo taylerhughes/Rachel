@@ -1,1 +1,2 @@
-Let's hope you can read this.
+Work in progress by Tayler Hughes
+taylerhughes2007@googlemail.com
